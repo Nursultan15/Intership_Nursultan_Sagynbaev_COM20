@@ -1,1 +1,1 @@
-# Intership_Nursultan_Sagynbaev_COM20
+# Intership_Nursultan_Sagynbaev_COM20 
